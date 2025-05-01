@@ -1,0 +1,5 @@
+- 😐 Hi, I’m @Username123467812
+- 👀 I’m interested in: programming
+- 🪵 I’m currently learning: knowledge
+- ❔ How to reach me: pls dont
+- ⚡ Fun fact: I'm interested in programming.

@@ -1,4 +1,4 @@
-- 😐 Hi, I’m @Username123467812
+- 😐 Hi, I’m coding things
 - 👀 I’m interested in: coding things
 - 🪵 I’m currently learning: how to code more things
 - ❔ How to reach me: pls dont I'm too busy coding things
